@@ -1,1 +1,1 @@
-Hi! im sylvester, I'm a HTML, CSS, JS, NODE.JS, PYTHON, LUA and yeah, i work a little with databases but theyre not my thing! currently working on a roblox game. ty!
+Hi! im sylvester, I'm a HTML, CSS, JS, NODE.JS, PYTHON, LUA and yeah, i work a little with databases but theyre not my thing! currently working on a roblox game. ty! Also reason why this account is new its because I don't wanna expose my priv account on github.
